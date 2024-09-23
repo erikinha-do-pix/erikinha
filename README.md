@@ -8,7 +8,7 @@ Meu nome é Erika Beatriz
 
 **Vocé pode entrar em cotato comigo** 📫
 
-erikasantos7059@gmail.com
+erikabeatriz7059@gmail.com
 
 **Não esqueça de me seguir** ⬇️
 
